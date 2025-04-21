@@ -33,6 +33,6 @@ This tool is perfect for marketers, influencer agencies, and brands who want to 
 
 ---
 
-## 🔗 Created by [SocioTraffic – Real Instagram Growth Tools](https://sociotraffic.com)
+## 🔗 Created by [SocioTraffic – Automatic monthly Instagram Tools](https://sociotraffic.com)
 
-Need more tools like this? Visit [SocioTraffic](https://sociotraffic.com) to boost your Instagram visibility — no password needed.
+Need more tools like this? Visit [SocioTraffic](https://sociotraffic.com) to boost your Instagram visibility.
